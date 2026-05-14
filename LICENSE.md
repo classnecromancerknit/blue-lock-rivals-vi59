@@ -1,4 +1,4 @@
-#  
+#  blue lock rivals Script secure offers the most advanced blue lock rivals Script, with silent aim and auto-farm. Perfect for dominating any match.
 
 
 
